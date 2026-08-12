@@ -1,4 +1,4 @@
-<p align=centre>
-  test
-  test
+<p>
+  <p align=center>
+    testing test
 </p>
