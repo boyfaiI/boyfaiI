@@ -1,4 +1,4 @@
-[![Discord Presence](https://lanyard.cnrad.dev/api/1420422763612733440?hideActivity=true)](https://discord.com/users/1420422763612733440?hideActivity=true)
+**whisper for discord!**
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yq4vwbtb7vfvtbtfbqtwa6oiaa&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <p>
