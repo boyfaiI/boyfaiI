@@ -15,4 +15,4 @@
 </p>
 <br>
 <p> <p align=center> <img src=https://komarev.com/ghpvc/?username=boyfaiI&style=flat-square&color=grey&label=ཐིᗢཋྀ_infected> </p>
-<p> <p align=center> <code><a href="https://rentry.co/alycsha">rentry</a></code> <code><a href="https://alycsha.atabook.org/">atabook</a></code> </p>
+<p> <p align=center> <code><a href="https://rentry.co/alycsha">rentry</a></code> <code><a href="https://alycsha.atabook.org/">atabook</a></code> <br> Ali_akiyamaa (c) twt</p>
