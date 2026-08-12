@@ -8,7 +8,7 @@
 
 <p>
   <p align=center> 
-    if(n)/infp sang-chol <br> so469 4w5 elvf <br> <br> <img src=https://64.media.tumblr.com/c63c4daac162e2fb6af1efa526160ddf/tumblr_inline_mi5xr0R3yB1qz4rgp.gif> <br> <br> i'm a little quiet but always down to chat! <br> c+h encouraged, i'd like to make friends... ཐི ₍ᐢ.  ̞.ᐢ₎ ཋྀ
+    if(n)/infp sang-chol <br> so469 4w5 elvf <br> <br> <img src=https://64.media.tumblr.com/c63c4daac162e2fb6af1efa526160ddf/tumblr_inline_mi5xr0R3yB1qz4rgp.gif> <br> <br> i'm a little quiet but always down to chat! <br> like, always... i'd like to make friends... ཐི ₍ᐢ.  ̞.ᐢ₎ ཋྀ
 </p>
 <br>
 <p> <p align=center> <img src=https://komarev.com/ghpvc/?username=boyfaiI&style=flat-square&color=grey&label=ཐིᗢཋྀ_infected> </p>
