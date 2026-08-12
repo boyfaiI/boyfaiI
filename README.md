@@ -8,7 +8,7 @@
 
 <p>
   <p align=center> 
-    if(n)/infp sang-chol so469 4w5 elvf <br> i'm a little quiet but always down to chat! <br> c+h encouraged
+    if(n)/infp sang-chol <br> so469 4w5 elvf <br> <br> i'm a little quiet but always down to chat! <br> c+h encouraged
 </p>
 <br>
 <p> <p align=center> <img src=https://komarev.com/ghpvc/?username=boyfaiI&style=flat-square&color=grey&label=ཐིᗢཋྀ_infected> </p>
